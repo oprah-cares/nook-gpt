@@ -1,3 +1,0 @@
-# nook-gpt
-hi :)
-butts
